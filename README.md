@@ -16,6 +16,6 @@ Każdy z członków, bez wyjątku, jest wyjątkowy.
 Część to genialni matematycy, inni to znakomici informatycy wszelkiej maści, od programistów, po techników.
 Niektórzy to wyjątkowo dobrzy graficy. A elita z KINF-u jest każdym z nich.
 
-Podpisano,
 
+Podpisano, 
 Celahir Amras Falassion
