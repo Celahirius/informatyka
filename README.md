@@ -11,11 +11,11 @@ Nie wiesz także co to grupa KINF?
 
 To także tajna grupa założona przez A.M.N. i grupę młodych programistów z wyobraźnią i świetnymi pomysłami. 
 
-Każdy z członków, bez wyjątku, jest wyjątkowy.
+Każdy z członków KINF-u jest wyjątkowy.
 
 Część to genialni matematycy, inni to znakomici informatycy wszelkiej maści, od programistów, po techników.
 Niektórzy to wyjątkowo dobrzy graficy. A elita z KINF-u jest każdym z nich.
 
 
-Podpisano, 
+Podpisano,                                                                                                                      
 Celahir Amras Falassion
