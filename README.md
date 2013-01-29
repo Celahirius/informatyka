@@ -9,7 +9,7 @@ To tajny projekt jednego z czołowych programistów w grupie KINF.
 
 Nie wiesz także co to grupa KINF?
 
-To także tajna grupe założona przez A.M.N. i grupę młodych programistów z wyobraźnią i świetnymi pomysłami. 
+To także tajna grupa założona przez A.M.N. i grupę młodych programistów z wyobraźnią i świetnymi pomysłami. 
 
 Każdy z członków, bez wyjątku, jest wyjątkowy.
 
