@@ -17,4 +17,5 @@ Część to genialni matematycy, inni to znakomici informatycy wszelkiej maści,
 Niektórzy to wyjątkowo dobrzy graficy. A elita z KINF-u jest każdym z nich.
 
 Podpisano,
+
 Celahir Amras Falassion
