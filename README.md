@@ -14,7 +14,7 @@ To tajna grupa założona przez A.M.N. i grupę młodych programistów z wyobra�
 Każdy z członków KINF-u jest wyjątkowy.
 
 Część to genialni matematycy, inni to znakomici informatycy wszelkiej maści, od programistów, po techników.
-Niektórzy to wyjątkowo dobrzy graficy. A elita z KINF-u jest każdym z nich.
+Niektórzy to wyjątkowo dobrzy graficy. 
 
 
 Podpisano,                                                                                                                      
